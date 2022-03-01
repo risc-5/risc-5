@@ -1,5 +1,5 @@
 
-# I’m TeamJack(@risc-5)
+# I’m TeamJake(@risc-5)
 
 A junior high scool student who lives in Kanagawa,Japan.
 
